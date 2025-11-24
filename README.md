@@ -1,4 +1,5 @@
 greetings gng
+![image](https://files.catbox.moe/ggfywb.jpg)
 <!--
 **V0X-DEI/V0X-DEI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
