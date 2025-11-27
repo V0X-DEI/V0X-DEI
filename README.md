@@ -3,6 +3,8 @@ greetings gng
 
 fandom iwc , k ? thx !!
 ikinda like radiostatic yuuup... haha... gulps 
+
+pls help they're dragging me in guys please help m
 <!--
 **V0X-DEI/V0X-DEI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
