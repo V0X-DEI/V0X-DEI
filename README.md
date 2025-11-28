@@ -2,7 +2,12 @@ greetings gng
 ![image](https://files.catbox.moe/ggfywb.jpg)
 
 fandom iwc , k ? thx !!
+
+hmmm..imight like vox idk guyss....
+looks at my 10 vox ponies
+
 ikinda like radiostatic yuuup... haha... gulps 
+
 
 pls help they're dragging me in guys please help m
 <!--
