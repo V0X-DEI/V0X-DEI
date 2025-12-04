@@ -2,6 +2,7 @@ greetings gng
 ![image](https://files.catbox.moe/ggfywb.jpg)
 
 fandom iwc , k ? thx !!
+guys c+h is ok :) um i probably wont int tho im shy idk HELP
 
 hmmm..imight like vox idk guyss....
 looks at my 10 vox ponies
