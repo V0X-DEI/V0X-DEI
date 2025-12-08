@@ -5,7 +5,7 @@ fandom iwc , k ? thx !!
 guys c+h is ok :) um i probably wont int tho im shy idk HELP
 
 hmmm..imight like vox idk guyss....
-looks at my 19 vox ponies..
+looks at my 20 vox ponies..
 guys ijust really like vox he is nothing likeme tho idk mybe
 
 ikinda like radiostatic yuuup... haha... gulps 
