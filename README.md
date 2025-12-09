@@ -1,4 +1,4 @@
-[strawpage](https://v0x-dei.straw.page) (important)
+[strawpage](https://v0x-dei.straw.page) (read byi)
 
 
 greetings gng
