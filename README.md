@@ -9,6 +9,9 @@ fandom iwc , k ? thx !!
 
 u can always c+h when im like.. rlly lonely.. all by myself.. but ask if im with my friends okay :) (dont c+h if i have like dni stuff like that in my name (unless friends)
 
+
+im yAPPING SO MUCH HERE OHMYGOD. ok but like im rlly shy so heh.. i usually don't int first okay note that 
+
 hmmm..imight like vox idk guyss....
 looks at my 23 vox ponies..
 guys ijust really like vox he is nothing likeme tho idk mybe
