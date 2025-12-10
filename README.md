@@ -5,7 +5,9 @@ greetings gng
 ![image](https://files.catbox.moe/ggfywb.jpg)
 
 fandom iwc , k ? thx !!
-guys c+h is ok :) um i probably wont int tho im shy idk HELP
+
+
+u can always c+h when im like.. rlly lonely.. all by myself.. but ask if im with my friends okay :) (dont c+h if i have like dni stuff like that in my name (unless friends)
 
 hmmm..imight like vox idk guyss....
 looks at my 23 vox ponies..
