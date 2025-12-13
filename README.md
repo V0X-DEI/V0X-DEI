@@ -1,3 +1,4 @@
+[rentry!](https://rentry.co/V0X-DEI) [prns.cc](https://pronouns.cc/@VOX-POPULI)
 [strawpage](https://v0x-dei.straw.page) ( read byi , holy yappatron btw )
 
 
