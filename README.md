@@ -1,4 +1,4 @@
->[rentry!](https://rentry.co/V0X-DEI) [prns.cc](https://pronouns.cc/@VOX-POPULI)<
+>[rentry!](https://rentry.co/V0X-DEI) [prns.cc](https://pronouns.cc/@VOX-POPULI)
 
 
 
