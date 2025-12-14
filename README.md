@@ -20,10 +20,8 @@ hmmm..imight like vox idk guyss....
 looks at my 28 vox ponies..
 guys ijust really like vox he is nothing likeme tho idk mybe
 
-ikinda like radiostatic yuuup... haha... gulps 
-
-
-pls help they're dragging me in guys please help m
+ooooh god bro radiostatic.. ooh ilove radiostatic pleasssseeeeee oooooahh they make me joyous 
+Guys. you cant change my mind okay.
 <!--
 **V0X-DEI/V0X-DEI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
