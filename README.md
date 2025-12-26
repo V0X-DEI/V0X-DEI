@@ -24,6 +24,8 @@ hmmm..imight like vox idk guyss....
 looks at my 31 vox ponies..
 guys ijust really like vox he is nothing likeme tho idk mybe
 
+atp this is my main now ilove vox bro im gonna keep usin ts
+
 ooooh god bro radiostatic.. ooh ilove radiostatic pleasssseeeeee oooooahh they make me joyous 
 Guys. you cant change my mind okay.
 <!--
