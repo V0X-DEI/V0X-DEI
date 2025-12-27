@@ -21,7 +21,7 @@ u can always c+h when im like.. rlly lonely.. all by myself.. but ask if im with
 im yAPPING SO MUCH HERE OHMYGOD. ok but like im rlly shy so heh.. i usually don't int first okay note that 
 
 hmmm..imight like vox idk guyss....
-looks at my 31 vox ponies..
+looks at my 32 vox ponies..
 guys ijust really like vox he is nothing likeme tho idk mybe
 
 atp this is my main now ilove vox bro im gonna keep usin ts
