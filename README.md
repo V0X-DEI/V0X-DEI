@@ -22,9 +22,11 @@ im yAPPING SO MUCH HERE OHMYGOD. ok but like im rlly shy so heh.. i usually don'
 
 hmmm..imight like vox idk guyss....
 looks at my 32 vox ponies..
-guys ijust really like vox he is nothing likeme tho idk mybe
+guys ijust really like vox
 
 atp this is my main now ilove vox bro im gonna keep usin ts
+
+also my pony styles keep changing cuz i like experimenting them when i have motivation 
 
 ooooh god bro radiostatic.. ooh ilove radiostatic pleasssseeeeee oooooahh they make me joyous 
 Guys. you cant change my mind okay.
