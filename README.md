@@ -15,10 +15,10 @@ pfp by me guys hahahahah
 “LEN NO ONE CARES.”
 oh..? ok.. sorry.
 
-u can always c+h when im like.. rlly lonely.. all by myself.. but ask if im with my friends okay :) (dont c+h if i have like dni stuff like that in my name (unless super close friends/partner)
+u can always c+h when im like.. rlly lonely.. all by myself.. but ask if im with my friends okay :) (dont c+h if i have like dni stuffwtvr (unless vcf/partner)
 
 
-im yAPPING SO MUCH HERE OHMYGOD. ok but like im rlly shy so heh.. i usually don't int first okay note that 
+im yAPPING SO MUCH HERE OHMYGOD. ok but like im rlly shy and awkward so heh.. i usually don't int first okay note that 
 
 hmmm..imight like vox idk guyss....
 looks at my 32 vox ponies..
