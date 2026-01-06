@@ -18,7 +18,7 @@ oh..? ok.. sorry.
 u can always c+h when im like.. rlly lonely.. all by myself.. but ask if im with my friends okay :) (dont c+h if i have like dni stuffwtvr (unless vcf/partner)
 
 
-im yAPPING SO MUCH HERE OHMYGOD. ok but like im rlly shy and awkward so heh.. i usually don't int first okay note that 
+im yAPPING SO MUCH HERE OHMYGOD. ok but like im rlly shy and awkward so heh.. i usually don't int first okay note that . Also im not that talkative , sometimes i jst like to sit in silence;-;
 
 hmmm..imight like vox idk guyss....
 looks at my 32 vox ponies..
