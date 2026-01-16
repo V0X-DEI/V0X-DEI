@@ -20,11 +20,12 @@ u can always c+h when im like.. rlly lonely.. all by myself.. but ask if im with
 
 im yAPPING SO MUCH HERE OHMYGOD. ok but like im rlly shy and awkward so heh.. i usually don't int first okay note that . Also im not that talkative , sometimes i jst like to sit in silence;-;
 
+lowkey i think im gnna stop making friends , i cant manage a bunch of em ,,,,,lowk lazy too. you guys can still int
+
 hmmm..imight like vox idk guyss....
 looks at my 32 vox ponies..
 guys ijust really like vox
 
-atp this is my main now ilove vox bro im gonna keep usin ts
 
 also my pony styles keep changing cuz i like experimenting them when i have motivation 
 
