@@ -31,6 +31,7 @@ also my pony styles keep changing cuz i like experimenting them when i have moti
 
 ooooh god bro radiostatic.. ooh ilove radiostatic pleasssseeeeee oooooahh they make me joyous 
 Guys. you cant change my mind okay.
+...ok voxcest is kinda cool too.
 <!--
 **V0X-DEI/V0X-DEI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
