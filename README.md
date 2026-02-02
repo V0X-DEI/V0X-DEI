@@ -26,6 +26,7 @@ hmmm..imight like vox idk guyss....
 looks at my 32 vox ponies..
 guys ijust really like vox
 
+everyone should gift me a vox pony j
 
 also my pony styles keep changing cuz i like experimenting them when i have motivation 
 
