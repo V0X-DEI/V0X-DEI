@@ -15,7 +15,7 @@ pfp by me guys hahahahah
 “LEN NO ONE CARES.”
 oh..? ok.. sorry.
 
-u can always c+h when im like.. rlly lonely.. all by myself.. but ask if im with my friends okay :) (dont c+h if i have like dni stuffwtvr (unless vcf/partner)
+u can always c+h when im like.. rlly lonely.. all by myself.. but ask if im with my friends okay :) unless i have dni and i move rlly far from people (there's only 1 exception tho ok(mybf
 
 
 im yAPPING SO MUCH HERE OHMYGOD. ok but like im rlly shy and awkward so heh.. i usually don't int first okay note that . Also im not that talkative , sometimes i jst like to sit in silence;-;
@@ -27,6 +27,9 @@ looks at my 32 vox ponies..
 guys ijust really like vox
 
 everyone should gift me a vox pony j
+
+iam rlly multifandom-ed person but i always crawl back to vox
+
 
 also my pony styles keep changing cuz i like experimenting them when i have motivation 
 
