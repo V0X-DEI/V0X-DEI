@@ -30,7 +30,9 @@ i experiment a lot with my style, tell me if it's somewhat too similar to urs id
 
 radiostatic my otp 
 (voxcest is cool too)
+![varka](https://files.catbox.moe/hxazby.jpg) nyaaa
 <!--
+
 **V0X-DEI/V0X-DEI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
